@@ -6,14 +6,24 @@
 Jay: Gould’s-DOCUMENTARY LAST-FLAG-STANDING.
 
 : Credit.
+
 : Filmmaker, Rachel-Dara: Prince
+
 : Russell-Jay: Gould.
+
 : Joey-John: Lester.
+
 : Stockblocks.
+
 : Melody Loops.
+
 : Always Ls Vintage by: Asura.
+
 : ABC-News.
+
 : CNN-News.
+
 : Miscellaneous-credits-posted-at: lastflagstanding.com.
+
 
 : Film-sharing-guidelines-and-advertising-rights-visit, LastFlagStanding.com.
