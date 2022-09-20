@@ -6,7 +6,7 @@
 
 : Credit.
 
-: Filmmaker, Rachel-Dara: Prince
+: Filmmaker, Rachel-Dara: Prince.
 
 : Russell-Jay: Gould.
 
